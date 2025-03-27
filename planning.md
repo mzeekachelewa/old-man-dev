@@ -8,4 +8,9 @@ Write out the CSS code
 
 Sweat and make her pretty
 
-#The amount of time taken to set up GCM imenimaliza nani
+#The list of 5 websites page3
+https://longdogechallenge.com/
+https://optical.toys/
+https://checkbox.toys/scale/
+https://paint.toys/calligram
+https://www.youtube.com/
