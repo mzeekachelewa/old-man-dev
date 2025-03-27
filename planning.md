@@ -8,4 +8,4 @@ Write out the CSS code
 
 Sweat and make her pretty
 
-#I don't understand why this is not working, test
+#The amount of time taken to set up GCM imenimaliza nani
