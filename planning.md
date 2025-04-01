@@ -6,7 +6,7 @@ Test out all the links
 
 Write out the CSS code
 
-Sweat and make her pretty
+Make her pretty
 
 #The list of 5 websites page3
 https://longdogechallenge.com/
